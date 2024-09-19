@@ -1,2 +1,2 @@
 # Diego
-for studing
+this my materi IT 
